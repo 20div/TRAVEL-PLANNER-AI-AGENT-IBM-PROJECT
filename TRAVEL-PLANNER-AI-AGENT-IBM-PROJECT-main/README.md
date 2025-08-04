@@ -61,7 +61,7 @@ Unique features:
 
 # <img width="27" height="25" alt="image" src="https://github.com/user-attachments/assets/b0953de5-baca-4c57-8b47-50821f26448e" /> GITHUB LINK
 
-https://github.com/Tharun9092
+https://github.com/20div
 
 # 🪩 FUTURE SCOPE
 
